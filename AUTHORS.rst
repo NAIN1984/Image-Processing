@@ -1,6 +1,0 @@
-
-
-* Eric (New contributor)
-* Anthony 
-
-
